@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ABtheLight.github.io/rsschool-cv/cv
