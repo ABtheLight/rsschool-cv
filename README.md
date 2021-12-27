@@ -1,1 +1,1 @@
-https://ABtheLight.github.io/rsschool-cv/cv
+https://ABtheLight.github.io/rsschool-cv/
